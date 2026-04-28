@@ -1,1 +1,0 @@
-# takenivgranite.github.io
